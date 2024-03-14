@@ -1,2 +1,2 @@
 # dimpal
-dfimapl is mad girl 
+dimpal is cute girl 
